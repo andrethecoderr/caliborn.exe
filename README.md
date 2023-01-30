@@ -1,2 +1,3 @@
 # caliborn.exe
-fucking destroy ur computer
+do you love green dudes with a love of violence?
+me. Too. :)
